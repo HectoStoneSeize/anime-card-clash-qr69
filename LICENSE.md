@@ -1,4 +1,4 @@
-
+anime card clash ultimate Scripts is the best anime card clash Script, featuring auto-farm and speed. Safe and powerful for all your needs.
 
 
 
